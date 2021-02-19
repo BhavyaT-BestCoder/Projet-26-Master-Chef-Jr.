@@ -1,0 +1,8 @@
+ This is the recipe of the enchilaco
+ It is a fusion cuisisne that I have created myself
+ The enchilaco is a delciious fusion cuisine comprised of two tasty mexican meals- The taco and the enchilada
+ There is a funny story that is behind my creation of the enchilaco:
+ I was having a dream one night
+ This is how the dream goes 
+ My class was at a field trip. We stopped by McDonalds to have some lunch. For whatever reason, McDonalds had this enchilaco on their menu. Everyone was ordering one, so I did too. Another weird thing is that everyone had a trashbag instead of a regular tray or plate for eating and everyone put their food there. And then all of a sudden, I heard a noise. There was some kind of ceremony going on next to the McDonalds. Curious, I left the McDonalds and set my garbage bag full of food in the floor. I went in and I saw my family there. There was someone at a podium calling out names and people went and got a certificate. My family and I had fun for a while. but after I left to go back to my class and eat my lunch, I couldn't find my trash bag. It was stolen! And then I woke up.
+ The day I got my dream, I asked my mom to try to make the enchilaco and she asked me to describe it. I told here that the enchilaco was a combination of a taco and an enchilada and all you had to do to make the enchilaco was make an enchilada, put it on a taco shell, a season it with some lettuce and sour cream.
